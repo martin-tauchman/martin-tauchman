@@ -1,0 +1,4 @@
+- 👋 Hello, I’m Martin Tauchman, student from Czechia
+- 👀 I’m interested in Biology.
+- 🌱 I’m currently studying Biology at the Faculty of Science, Charles University, Prague, Czechia.
+- 📫 You can reach me just using form on my website…
